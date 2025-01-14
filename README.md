@@ -8,7 +8,7 @@ Hi, I’m @sergioVelaSofipa
 
 📬 How to reach me: Feel free to connect with me via LinkedIn or email at sergio.velasco@sofipa.org.mx
 
-👤 Pronouns: He/Him
+👤 Pronouns: he/him, engineer.
 
 ⚡ Fun fact: I love playing soccer and enjoy listening to music.
 
